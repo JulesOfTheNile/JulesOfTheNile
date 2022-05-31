@@ -1,10 +1,8 @@
 - 👋 Hi, I’m @JulesOfTheNile
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in conversation 💋
+- 🌱 I’m currently figuring out about this life
+- 💞️ I’m looking to collaborate on.... well...you tell me
+- 📫 How to reach me ... figure it out if you would like to know
 
 <!---
-JulesOfTheNile/JulesOfTheNile is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+JulesOfTheNile/JulesOfTheNile is a ✨ special ✨ ...motivator 💋
